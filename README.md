@@ -23,4 +23,4 @@ Seeking opportunities in:
 
 ## 📫 Contact
 - Email: braianduartez122@gmail.com  
-- LinkedIn: (add your LinkedIn profile link here)
+- LinkedIn: https://www.linkedin.com/in/brian-duartez-948b22234/
